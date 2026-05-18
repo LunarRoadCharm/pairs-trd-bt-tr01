@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://LunarRoadCharm.github.io/pairs-trd-bt-tr01/ ) |
  |---------------------|----------------------:|
 
 
